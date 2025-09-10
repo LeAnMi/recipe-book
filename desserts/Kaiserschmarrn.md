@@ -20,5 +20,5 @@ some butter
 6. add the raising when the butter is hot, just before adding the finished dough into the pan
 7. fry it in butter and flip it once done from the first side
 8. pull it into smaller pieces once it is nearly done
-9. serve with powdered sugar on top
-10. Enjoy!!! :)
+9. serve with powdered sugar
+10. Enjoy!!! :D
